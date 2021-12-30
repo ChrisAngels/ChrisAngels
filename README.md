@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ChrisAngels
+- 👀 I’m interested in Games and graphic design
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on not sure yet... lets see what the future holds...
+- 📫 How to reach me hit me up at https://discord.gg/jFdxjKba6z
